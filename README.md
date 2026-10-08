@@ -1,1 +1,0 @@
-# WhiteStone0824.github.io
